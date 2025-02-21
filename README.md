@@ -1,12 +1,10 @@
-# DeepSeek官网入口、下载及使用攻略~ | DeepSeek 最新使用指南~【2025年2月更新】
+# DeepSeek官网入口、高速流畅、下载及使用攻略 【2025年2月更新】
 
 > 更新日期：2025/02/21       
 
-轻松使用上 **[DeepSeek 网页版](https://chat.lify.vip)**，**快速稳定、流畅使用、不卡顿**，支持 **DeepSeek R1 满血版** 及 **ChatGPT o1、o3**   
+轻松使用上 **[DeepSeek 高速网页版](https://chat.lify.vip)**，**高速稳定、流畅使用、不卡顿**，支持 **DeepSeek R1 满血版**   
 
-本指南提供全面的 **DeepSeek 国内使用指南**，助你告别 服务器繁忙，**顺畅使用上 DeepSeek**
-
-包含 [**DeepSeek 官网入口**](https://chat.lify.vip)、[**DeepSeek 网页版**](https://chat.lify.vip)、[**DeepSeek 下载**](https://chat.lify.vip)、[**DeepSeek 平替网站**](https://chat.lify.vip)等等~
+本指南提供全面的 **DeepSeek 国内使用指南**，包含 [**DeepSeek 官网入口**](https://chat.lify.vip)、[**DeepSeek 高速网页版**](https://chat.lify.vip)、[**DeepSeek 下载**](https://chat.lify.vip)、[**DeepSeek 平替网站**](https://chat.lify.vip)等等~
 
 ---
 
