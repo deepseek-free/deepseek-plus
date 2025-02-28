@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/76bb765f-2e59-4c9b-94e7-116a1405f026)# DeepSeek官网入口、高速流畅、下载及使用攻略 【2025年3月更新】
+# DeepSeek官网入口、高速流畅、下载及使用攻略 【2025年3月更新】
 
 > 更新日期：2025/03/01       
 
